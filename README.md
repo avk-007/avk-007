@@ -1,0 +1,1 @@
+I am results-oriented, constantly checking in with the goal to determine how close or how far away we are and what it will take to make it happen. I find this pressure inspiring and a great motivator for the rest of the team. In fact, over the past year, I was able to help my team shorten our average product time to market by two weeks.”
